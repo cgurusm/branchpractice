@@ -1,1 +1,0 @@
-"love, care, peace, joy" 
